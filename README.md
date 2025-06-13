@@ -1,1 +1,1 @@
-![^_^](https://github.com/user-attachments/assets/3ec670bf-fc88-4c66-8ddd-1645471504e0)
+(https://github.com/user-attachments/assets/3ec670bf-fc88-4c66-8ddd-1645471504e0<img src="https: //files.catbox.moe/ccc20k.jpg">)
