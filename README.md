@@ -15,4 +15,4 @@ i <ins>DONT</ins> give randos my socials especially if i met them for like a sec
 
 
 
-**keep in mind that i dont post my art on tumblr or insta or pinterest**
+**my wifi sucks so i cant play ponytown most of the time same with among us and roblox sighshshshshshsh**
