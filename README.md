@@ -1,16 +1,3 @@
-HIHIHI!!! IM SUN !!! ~~im very serious and not silly trust me bro~~
-i kin sprout and uhhhhhhhhhhhhh cocoa !! and way way way way more..o_o
-i <ins>DONT</ins> give randos my socials especially if i met them for like a second.
-
-
-
-
-
-
-
-
-
-
-
-
-**my wifi sucks so i cant play ponytown most of the time same with among us and roblox sighshshshshshsh**
+![images](https://github.com/user-attachments/assets/bbf3cb80-eab2-4d6e-bf3e-5e17f7f2c429)
+<--my huge cutesy kin , *,, i say while snatching every tape i see in dandys world even if im not sprout*
+CHECK STRAWPAGE!! **draw on it NOW** , /silly ;  c*h freely :  iwcuf
