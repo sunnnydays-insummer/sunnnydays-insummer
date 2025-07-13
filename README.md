@@ -1,3 +1,5 @@
-![images](https://github.com/user-attachments/assets/bbf3cb80-eab2-4d6e-bf3e-5e17f7f2c429)
-<--my huge cutesy kin , *,, i say while snatching every tape i see in dandys world even if im not sprout*
-CHECK STRAWPAGE!! **draw on it NOW** , /silly ;  c*h freely :  iwcuf
+hihi ◎口◎
+ᶻzabout me!
+fandoms:fundamental paper education  ,  yandere simulator [i do NOT support yandev] ,  dandys world!  ,  forsaken  , mouthwashing + more . [check on strawpage]
+if ur over 18 please HVY dni.
+➜disclaimer: more info is in my strawpage (i WILL link old strawpages that i have - sso yeah)
