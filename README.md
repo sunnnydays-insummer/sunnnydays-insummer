@@ -7,4 +7,4 @@
                     games i like!!:
                     horror gamessshshshshhshs orororor games like dandys world and forsaken [survival games!]
     
-           
+old strawpage!!!(https://wonderhoyyyyyyyyyyyyyyyyyyyyyyyyyyy.straw.page/)  nnnew strawpage!!!(https://dearmrdouchebag.straw.page/)
