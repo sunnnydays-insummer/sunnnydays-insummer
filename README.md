@@ -1,4 +1,2 @@
-(https://wonderhoyyyyyyyyyyyyyyyyyyyyyyyyyyy.straw.page/)(https://dearmrdouchebag.straw.page/)
-old and new strawpages ^ q ^
-please interact with caution AND care ;-;!!
-
+hhhhhhhhhhi!! im sun orrr sunni :3 u CAN also call me by my kin names! liiiiiiiiiiiiike sproot (sprout)!! I AM sensitive to some topics so plpssplpslpsspls ask me if its okay to talk abt that! , i rreeeeeeeeaaaaaaally like video games . (a bit too much to the point i go silly mode............................) I AM childish sometimes but silly mostly to my closer friends but energetic so if you dont like that or smth i can TRY to calm down a bit!! ^_^ i really like nuclear incidents to research abt!! i also REAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAALLYYYYYYYYYY.. like vocaloid+utauloid i also do art+pony commisions , jjust whisper me on ponytown to know more info on the commisions!! kins!!: sprout , aubrey (omori woah...................) , rin (vocaloid drools.ss..s.ss.s..................s.s.s.) , Noob (4sk)  sun (security breach fnaf thingy idk) , Ena , aaaaaaaaaaaaaannnnnnnnnd more!!
+Pls int im cool :</silly
